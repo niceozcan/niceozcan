@@ -1,4 +1,3 @@
-# 💫 About Me:
 Nice To Meet You🫀!<br><br>"People are here to affect and to be affected." <br>My profile is a fusion of databases I have encountered as a person in the society and a being in the Earth. Also projects to acquire databases sufficiently.My interests move along life, death and everything in between.<br><br>✦ Curriculum Vitae<br>GameJoys Data Analystics<br>✦ Currently Learning & Exploring<br><br>Python & R (cODE)<br>Data Science <br>Data Analystics<br>Mobile App Development<br>
 
 
